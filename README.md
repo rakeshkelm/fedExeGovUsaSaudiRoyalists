@@ -1,6 +1,6 @@
 # fedGov
 
-Federal Government USA
+Federal Government USA, Royalist
 
 Running on partial establishment interest model.  
 
