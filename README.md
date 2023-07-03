@@ -24,7 +24,7 @@ For more details,
 
 Check County and State Government, USA (aka Great-America)
 
-at https://github.com/rakeshkelm/broomeCountyStateGovSaudiRoyalists
+at https://github.com/rakeshkelm/broomeCountyStateGovNyUsaSaudiRoyalists
 
 then - Check out, BroomeBoeChurchStateSeparation.jpeg
 
