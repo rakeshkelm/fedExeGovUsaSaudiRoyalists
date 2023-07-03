@@ -1,17 +1,36 @@
-# fedGov
+Federal Government, USA, Saudi Royalist (Winning)
 
-Federal Government USA, Saudi Royalist (Winning)
+Running on partial establishment interest model.
 
-https://usa.saudi.royalist
+Reporting to full establishment interest - Mohammed Saud, Kingdom of Saudi Arabia.
 
-Check out, FbiTrespass.mp4
+at htps://fedgovusasaudiroyalists.media.militia
 
-Running on partial establishment interest model.  
+then - Check Federal Government, USA (aka Great-America)
 
-Reporting to full establishment interest - Mohammed Saud,Kingdom of Saudi Arabia.
+at https://github.com/rakeshkelm/fedgovusasaudiroyalists
 
-Check out, files in this folder. (Actively updated)
+then - Check out, fbiTrespass.mp4
 
-Also, Check out
+continue to
 
-https://github.com/irakeshkelm (Actively updated)
+Check out, Multiple files
+
+at https://github.com/rakeshkelm/fedgovusasaudiroyalists
+
+then - Check out, multiple files in this folder.
+
+For more details,
+
+Check County and State Government, USA (aka Great-America)
+
+at https://github.com/rakeshkelm/broomeCountyStateGovSaudiRoyalists
+
+then - Check out, BroomeBoeChurchStateSeparation.jpeg
+
+Build and operationalize a planet.
+
+Expand and update Independent interest.
+
+
+Expand and update Independent interest.
