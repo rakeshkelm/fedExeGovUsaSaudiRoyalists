@@ -32,5 +32,3 @@ Build and operationalize a planet.
 
 Expand and update Independent interest.
 
-
-Expand and update Independent interest.
