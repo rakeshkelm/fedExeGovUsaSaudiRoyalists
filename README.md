@@ -1,4 +1,4 @@
-Federal Government, USA, Saudi Royalist (Winning)
+Federal Government, USA (aka United slave america), Saudi Royalist (Winning)
 
 Running on partial establishment interest model.
 
@@ -6,7 +6,7 @@ Reporting to full establishment interest - Mohammed Saud, Kingdom of Saudi Arabi
 
 at htps://fedgovusasaudiroyalists.media.militia
 
-then - Check Federal Government, USA (aka Great-America)
+then - Check Federal Government, USA (aka United slave america)
 
 at https://github.com/rakeshkelm/fedgovusasaudiroyalists
 
