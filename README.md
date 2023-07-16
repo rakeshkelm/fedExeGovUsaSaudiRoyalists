@@ -22,7 +22,7 @@ then - Check out, multiple files in this folder.
 
 For more details,
 
-Check County and State Government, USA (aka Great-America)
+Check County and State Government, USA (aka United slave america)
 
 at https://github.com/rakeshkelm/broomeCountyStateGovNyUsaSaudiRoyalists
 
