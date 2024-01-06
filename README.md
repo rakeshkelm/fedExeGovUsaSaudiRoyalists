@@ -1,14 +1,14 @@
-Federal Government, USA (aka United slave america), Saudi Royalist (Winning)
+Federal executuve government, USA (aka United slave america), Saudi Royalist (Winning)
 
 Running on partial establishment interest model.
 
 Reporting to full establishment interest - Mohammed Saud, Kingdom of Saudi Arabia.
 
-at htps://fedgovusasaudiroyalists.media.militia
+at htps://fedexegovusasaudiroyalists.media.militia
 
-then - Check Federal Government, USA (aka United slave america)
+then - Check Federal executuve government, USA (aka United slave america)
 
-at https://github.com/rakeshkelm/fedgovusasaudiroyalists
+at https://github.com/rakeshkelm/fedexegovusasaudiroyalists
 
 then - Check out, fbiTrespass.mp4
 
@@ -24,7 +24,7 @@ For more details,
 
 Check County and State Government, USA (aka United slave america)
 
-at https://github.com/rakeshkelm/broomeCountyStateGovNyUsaSaudiRoyalists
+at https://github.com/rakeshkelm/NyStateExeGovUsaSaudiRoyalists
 
 then - Check out, BroomeBoeChurchStateSeparation.jpeg
 
